@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JD-shadows - A helper at LN Sparx!
-- 👀 I’m interested in finance, learning and BTC!
+- www.lightningsparx.com and www.codedshadows.com
 - 🌱 I’m currently learning github, lol.
 - ⚡ Reccommendation: RUN A NODE! USE BITCOIN! BE POSITIVE!
 
